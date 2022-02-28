@@ -1,4 +1,4 @@
-# Strogonoff de Frango :baby_chick:
+# Strogonoff de Frango :chicken:
 
 ### Ingredientes
 
